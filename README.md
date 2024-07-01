@@ -1,0 +1,1 @@
+# Kemiringan_klmpk1
